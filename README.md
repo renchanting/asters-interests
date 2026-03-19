@@ -15,11 +15,11 @@ also this is like, Almost Everything we like. this is not meant to be completely
 
 
 ## GAMES
-***dragonvale***, **mewgenics**, **terraria**, *niche: a genetics survival game*, wobbledogs, slime rancher, ratopia, dont starve, minecraft, cattails (+ cattails: wildwood story), warriors: untold tales, clangen, dragon adventures, stardew valley, the binding of isaac, dialtown, roblox, ultimate chicken horse, omori, cookie run, ponytown, yume nikki, cat goes fishing, stick fight: the game, makeway, phasmophobia, pokemon, wildcraft, neko atsume, tunnel town, needy streamer overload.
+***dragonvale***, **mewgenics**, **terraria**, *niche: a genetics survival game*, wobbledogs, slime rancher, ratopia, dont starve, minecraft, cattails (+ cattails: wildwood story), warrior cats untold tales, clangen, dragon adventures, stardew valley, the binding of isaac, dialtown, roblox, ultimate chicken horse, omori, cookie run, ponytown, yume nikki, cat goes fishing, stick fight: the game, makeway, phasmophobia, pokemon, wildcraft, neko atsume, tunnel town, needy streamer overload.
 
 ## YOUTUBERS
 ***nana825763***, **failboat**, **smallishbeans**, **oddheader**, *ldshadowlady*, magic the noah, party crashers, itsjim, kylie boggly, khaios, sipho, terrasteel, inthelittlewood, grian, rendog, geminitay, jschlatt, therm, manlybadasshero, shaiivalley, lets game it out, gungnir, seapeekay, flamingo, kaden fumblebottom, oats jenkins, izzzyzzz, seanie dew, senprista. 
 
 
 ## MISC. THINGS
-**edmund mcmillen games**, **objectified**, love of the s\*n, warrior cats, cucumber quest, my little pony, kikis delivery service, bobs burgers, gravity falls, hooky, little witch academia, madoka magica, earclacks, hermitcraft, life series, terracorps.
+**objectified**, love of the s\*n, warrior cats, cucumber quest, my little pony, kikis delivery service, bobs burgers, gravity falls, hooky, little witch academia, madoka magica, earclacks, hermitcraft, life series, terracorps.
