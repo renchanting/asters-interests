@@ -15,7 +15,7 @@ american murder song, bo en, caravan of thieves, charming disaster, creature fea
 
 
 ## GAMES
-aether, birthdays the beginning, cat goes fishing, cattails (+ cattails: wildwood story), clangen, cookie run, dialtown, dont starve, dragon adventures, dragonvale, endacopia, horsey game, lets buid a zoo, makeway, mewgenics, minecraft, needy streamer overload, neko atsume, niche: a genetics survival game, omori, phasmophobia, pixel petz, pokemon, ponytown, ratopia, roblox, royale high, slime rancher, spewer, stardew valley, stick fight: the game, terraria, the binding of isaac, the legend of bumbo, time fcuk, tunnel town, ultimate chicken horse, warrior cats untold tales, wildcraft, wobbledogs, yume nikki
+aether, birthdays the beginning, cat goes fishing, cattails (+ cattails: wildwood story), clangen, cookie run, dialtown, dont starve, dragon adventures, dragonvale, endacopia, fingered, heartfall, horsey game, lets buid a zoo, makeway, mewgenics, minecraft, needy streamer overload, neko atsume, niche: a genetics survival game, omori, phasmophobia, pixel petz, pokemon, ponytown, ratopia, roblox, royale high, slime rancher, spewer, stardew valley, stick fight: the game, terraria, the binding of isaac, the legend of bumbo, time fcuk, tunnel town, ultimate chicken horse, warrior cats untold tales, wildcraft, wobbledogs, yume nikki
 
 ## YOUTUBERS
 another matt playing isaac, failboat, flamingo, geminitay, grian,gungnir, inthelittlewood, itsjim, izzzyzzz, jschlatt, kaden fumblebottom, khaios,kylie boggly, lazy mattman, ldshadowlady, lets game it out, lonslo, magic the noah, manlybadasshero, nana825763, oats jenkins, oddheader, party crashers, rendog, seanie dew, seapeekay, senprista, shaiivalley, sipho, smallishbeans, terrasteel, therm
