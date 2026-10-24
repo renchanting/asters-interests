@@ -11,7 +11,7 @@ art, biology, coding, collecting things, computer viruses, entomology, genetics,
 
 
 ## MUSIC (artists)
-american murder song, bo en, caravan of thieves, charming disaster, creature feature, fish in a birdcage, grand commander, hannah laine, harry mack, jack conte, jhariah, kabaret sybarit, LeaF, lemon demon, of montreal, PHABIES, ridiculon, scissor sisters, shayfer james, sparkbird, the bad things, the blake robinson synthetic orchestra, the circus contraption band, the crane wives, the fabulous downey brothers, the mountain goats, the oh hellos, the real tuesday weld, the scary jokes, the stupendium, the white stripes, they might be giants, this way to the egress, tormod garvin, weird al, will wood (& the tapeworms)
+american murder song, bo en, caravan of thieves, charming disaster, creature feature, fish in a birdcage, grand commander, hannah laine, harry mack, jack conte, jhariah, kabaret sybarit, LeaF, lee emi, lemon demon, of montreal, PHABIES, ridiculon, scissor sisters, shayfer james, sparkbird, the bad things, the blake robinson synthetic orchestra, the circus contraption band, the crane wives, the fabulous downey brothers, the mountain goats, the oh hellos, the real tuesday weld, the scary jokes, the stupendium, the white stripes, they might be giants, this way to the egress, tormod garvin, weird al, will wood (& the tapeworms)
 
 
 ## GAMES
